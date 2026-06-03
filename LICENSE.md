@@ -1,4 +1,4 @@
-# 
+# Elite pairs trading bot fluxo de trabalho para Mac OS | Instantâneo pairs trading bot fluxo de trabalho para PC Windows. Com contratos perpétuos e conectividade Web3 — otimizado para máximo desempenho em cada plataforma.
 
 
 
